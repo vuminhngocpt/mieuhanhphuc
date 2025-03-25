@@ -22,4 +22,4 @@
  - Liên Lạc : vuminhngocpt@gmail.com
 
 
-    - © Minh Ngọc Studio 
+    - ©2025 Minh Ngoc
