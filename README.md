@@ -3,7 +3,7 @@
 
 ####         Thông Tin
 
-  - Miếu Hạnh Phúc Được Xây Dựng Từ Rất Lâu Rùi Chúng Tôi Không Thể Xác Nhận Ngày Nhưng Miếu Đã Được Xây Lại Gần Đây . Miếu Do Người Dân Quyên Góp Tự Xây Dựng Lại , Miếu Cũ Đã Bị Xuống Cấp Và Bị Phá Huỷ Do Thời Tiết .
+  - Miếu Hạnh Phúc Được Xây Dựng Từ Rất Lâu Rùi Chúng Tôi Không Thể Xác Nhận Ngày Nhưng Miếu Cũ Đã Xuống Cấp Và Được Xây Lại Gần Đây . Miếu Do Người Dân Quyên Góp Tự Xây Dựng Lại 
    
 ####       Tâm Linh 
 
@@ -12,7 +12,7 @@
 ####         Cảnh Báo 
 
    - Có Một Số Đối Tượng Đã Chộm Cắp Đồ Của Miếu Do Cách Xa Nhà 200M Và Nên Miếu Bị Khoá Cửa Các Bạn Có Thể Hỏi Người Dân Để Họ Mở Cửa Nhé
-   - Khi Lễ Không Nên Để Tiền Lên Ban Nếu Muốn Đóng Góp Xin Hãy Lên Uỷ Ban Nhân Dân Xã Phúc Lai Hoặc Người Quán Lý Cầm Chìa Khoá Miếu Để Không Bị Người Xấu Chộm Cắp Hãy Đi Lễ Bằng Tâm ♥️
+   - Khi Lễ Không Nên Để Tiền Lên Ban Nếu Muốn Đóng Góp Xin Hãy Lên Uỷ Ban Nhân Dân Xã Phúc Lai
 
 
 #### Người Viết Và Thông Tin Người Coi Miếu 
